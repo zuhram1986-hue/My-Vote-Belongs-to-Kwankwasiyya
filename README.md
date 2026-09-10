@@ -1,2 +1,2 @@
-# My-Vote-Belongs-to-Kwankwasiyya
+# My-Vote-Belongs-To-Kwankwasiyya
 My-Vote-Belongs-to-Kwankwasiyya
